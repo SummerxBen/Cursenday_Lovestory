@@ -1,5 +1,5 @@
 # Cursenday Lovestory
-Ben x Summer
+Ben·Alexander x Summer
 
 
 ## 文
