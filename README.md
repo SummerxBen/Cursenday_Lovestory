@@ -1,4 +1,3 @@
-# Cursenday Lovestory
 Ben·Alexander x Summer
 
 
